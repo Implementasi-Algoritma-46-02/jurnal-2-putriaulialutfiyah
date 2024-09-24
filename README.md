@@ -1,8 +1,8 @@
 ## Identitas
 
-Nama: 
+Nama: Putri Aulia Lutfiyah
 
-NIM : 
+NIM : 607062430010
 
 ## Instruksi
 
